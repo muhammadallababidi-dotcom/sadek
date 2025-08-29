@@ -1,2 +1,4 @@
 # sadek
-nothing to say
+nothing to sayg
+no God exept god
+why not 
